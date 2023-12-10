@@ -1,2 +1,3 @@
 - 👋 Hi, I’m @stateman92
 - 📫 Reach my if you want on [LinkedIn](https://www.linkedin.com/in/stateman92/)!
+- 📚 Or follow me on [Medium](https://medium.com/@kristof98)!
